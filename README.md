@@ -1,0 +1,2 @@
+# Ikuze
+Let's Go!
